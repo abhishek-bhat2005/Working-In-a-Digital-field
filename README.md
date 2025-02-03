@@ -1,0 +1,2 @@
+
+I am thrilled to share that I have successfully completed my IBM course on Learning & Working in a Digital Field. This course provided me with valuable knowledge in digital transformation, AI, cloud computing, and data analytics. It has enhanced my ability to work in modern digital environments and apply innovative technologies effectively. I am excited to implement these skills in real-world projects and continue my learning journey. Thank you, IBM, for this opportunity! 🚀
